@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning scripting
 - 💞️ I’m looking to collaborate on secret hehe
 - 📫 How to reach me discord user:lolimalex
-- 😄 Pronouns: dont know what that means
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: idk
 
 <!---
